@@ -2,13 +2,13 @@
 
 ![Mission Uncrossable Image](https://res.cloudinary.com/dzwk5oovk/image/upload/v1729821916/EMD/mission%20uncrossable%20uk/mission-uncrossable-banner_fa8akz.jpg)
 
-🐔 **[>> PLAY MISSION UNCROSSABLE FOR FREE ! <<]([#](https://fspace.link/register))** 🐔
+                               🐔 **[>> PLAY MISSION UNCROSSABLE FOR FREE ! <<](https://fspace.link/register)** 🐔
 
 Are you ready for an exhilarating challenge where precision and quick decision-making are key? **Mission Uncrossable** is a fast-paced arcade-style game that will test your reflexes and strategic thinking. Your goal is simple—guide your character safely across a busy road, dodging moving obstacles and timing your moves wisely.
 
 The further you advance, the higher your rewards, but beware—one wrong move and it’s game over! Do you have what it takes to master the mission?
 
-🐔 **[play Mission Uncrossable Demo now!]([#](https://fspace.link/register))** 🐔
+🐔 **[play Mission Uncrossable Demo now!](https://fspace.link/register)** 🐔
 
 ## 🎮 How to Play
 
@@ -56,4 +56,4 @@ Which mode will you conquer?
 
 Do you have what it takes to cross the most roads and claim the highest rewards?
 
-🐔 **[Take on the Mission Uncrossable challenge now !]([#](https://fspace.link/register))** 🐔
+🐔 **[Take on the Mission Uncrossable challenge now !](https://fspace.link/register)** 🐔
