@@ -8,8 +8,6 @@ Are you ready for an exhilarating challenge where precision and quick decision-m
 
 The further you advance, the higher your rewards, but beware—one wrong move and it’s game over! Do you have what it takes to master the mission?
 
-🐔 **[play Mission Uncrossable Demo now!](https://fspace.link/register)** 🐔
-
 ## 🎮 How to Play
 
 Mission Uncrossable is easy to pick up but challenging to master. Follow these simple steps to get started:
@@ -29,8 +27,9 @@ Risk-taking can lead to greater rewards, but don’t get too greedy!
 
 ### 💰 Step 4: Cash Out Anytime
 Feeling lucky? You can stop at any time and collect your earnings.  
-But if you keep going, you might win even bigger prizes—or lose it all!  
-🐔 **Give it a try and see how far you can go!** 🐔
+But if you keep going, you might win even bigger prizes—or lose it all! 
+
+🐔 **[play Mission Uncrossable Demo now!](https://fspace.link/register)** 🐔
 
 ## 🔥 Difficulty Levels – Choose Your Challenge
 
